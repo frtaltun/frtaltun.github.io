@@ -1,1 +1,0 @@
-# frtaltun personal page
